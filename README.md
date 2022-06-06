@@ -6,6 +6,7 @@
 - 📫 How to reach me: ZGFyd2lubGVlMTk5ODA4MTFAaG90bWFpbC5jb20= (Base 64)
 - 📑 [Blog](https://naive514.top)
 - 🌏 Languages: 🀄(Native) 🍔(Fluent) 🍙(Beginner)
+- ❤️ My Love: HZC, with clock spins again, I will do my best
 - ⚡ Fun Facts: Vocaloid, Classicals, Games, Animes, Outdoors
 
 ### 🛠️ Tools
