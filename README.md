@@ -2,11 +2,11 @@
 
 - 📖 I’m currently pursuing a Master Degree on **Hydrology & Water Resources** in Jilin University
 - 💧 I’m currently learning **SWAT, Delft 3D & Fluid Dynamics (Sediment Transport)**
-- 💻 Coding is my hobby and research tool
+- 💻 Coding is my hobby and research tool (Mostly Python)
 - 📫 How to reach me: ZGFyd2lubGVlMTk5ODA4MTFAaG90bWFpbC5jb20= (Base 64)
 - 📑 [Blog](https://naive514.top)
 - 🌏 Languages: 🀄(Native) 🍔(Fluent) 🍙(Beginner)
-- ~💔 My Love: HZC, with clock spins again, I will do my best~ Back single again. 
+- ❤️‍🔥 My Love: YY, who is a cute but strong lovely girl.
 - ⚡ Fun Facts: Vocaloid, Classicals, Games, Animes, Outdoors
 
 ### 🛠️ Tools
